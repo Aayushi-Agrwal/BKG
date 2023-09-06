@@ -1,1 +1,1 @@
-
+This website is a tribute to Dr. Bhupendra Kumar Gandhi's dedication to advancing knowledge, fostering academic excellence, and shaping the future of Mechanical Engineering. It serves as a valuable resource for students, researchers, and anyone interested in the remarkable work of this esteemed scholar.
